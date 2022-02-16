@@ -5,4 +5,5 @@
 
 **Credits** <br>
 *Music:* <br>
-Coming Soon!
+Moods - Snaring River https://chll.to/cd684be9
+Emapea - Winter Chill https://chll.to/853f159a

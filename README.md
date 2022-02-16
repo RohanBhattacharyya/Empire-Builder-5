@@ -1,14 +1,8 @@
-# Empire Builder 3 Credits
-![Screenshot 2021-09-28 212306](https://user-images.githubusercontent.com/73246001/135203122-3ff57878-8340-4639-b798-e511ebee3d55.png)
+# Empire Builder 5 Credits
+![image](https://user-images.githubusercontent.com/73246001/154190725-fbe1a23b-8c21-426a-b4f1-271875616430.png)
 <br>
-**Youtube Link:** http://y2u.be/gP282LpFy4Q
+**Youtube Link:** Coming Soon
 
 **Credits** <br>
 *Music:* <br>
-Smile High, Teddy Roxpin - Ultraviolet https://chll.to/a294f667 <br> 
-Smile High, Teddy Roxpin - Roominate https://chll.to/52e1f0b4 <br> <br>
-
-*Partners:* <br>
-Lucas Tran <br>
-
-https://icecream629.github.io/Empire-Builder-3-Credits/
+Coming Soon!
